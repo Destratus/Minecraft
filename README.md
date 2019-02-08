@@ -1,2 +1,2 @@
 # Minecraft
-Just MC shit,you feel?
+Just MC shit, you feel?
